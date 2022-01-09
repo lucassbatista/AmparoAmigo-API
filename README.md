@@ -6,7 +6,7 @@
  #### Flavia Ettiuya
  #### Lucas dos Santos Batista
  #### Natalia Fernanda Milani de Moraes
- #### Natelia de Jesus Silva
+ #### Natalia de Jesus Silva
  #### Vanessa Alencar Cardoso Martins
 ---------------------------------------------------------
 
